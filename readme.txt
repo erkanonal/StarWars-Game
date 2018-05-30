@@ -1,1 +1,0 @@
-This is the first version, We will upload the final version sunday as Bora hoca said that it is ok
